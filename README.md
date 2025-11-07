@@ -1,6 +1,6 @@
-　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/kntnb3.png)
+　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/ue7k3w.webp)
                   
-　　　　　　　　　　　　　　　일  c*h is ok  i struggle with anxiety + unlisted
+　　　　　　　　　　　　　　　일  c*h enc pllesaaasee
 
 
 
